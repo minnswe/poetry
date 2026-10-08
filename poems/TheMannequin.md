@@ -26,6 +26,12 @@ The mannequin laughs no more.
   
 **Paing Minn Swe**  
 
- ---
-  
-*Original Burmese poem and English translation by **ပိုင်မင်းဆွေ (Paing Minn Swe)**, written in Singapore in 2013.*  
+---
+ *Original Burmese poem and English translation by **ပိုင်မင်းဆွေ (Paing Minn Swe)**, written in Singapore in 2013.*  
+---
+title: The Mannequin
+date: 2013-09-06
+language: Burmese, English
+status: published-online
+collection: collection-01
+---
