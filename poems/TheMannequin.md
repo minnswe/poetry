@@ -11,8 +11,8 @@
   
 **ပိုင်မင်းဆွေ**  
 
----
-  
+
+    
 ## The Mannequin  
   
 The mannequin's eyes are full of glue.  
@@ -26,7 +26,8 @@ Only glue comes out.
 The mannequin laughs no more.  
   
 **Paing Minn Swe**  
-
+  
+  
 ---
   
 *Original Burmese poem and English translation by **ပိုင်မင်းဆွေ (Paing Minn Swe)**, written in Singapore in 2013.*  
