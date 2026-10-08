@@ -1,3 +1,15 @@
+---
+title: "ကော်ပတ်ရုပ်ကြီး"  
+english_title: "The Mannequin"  
+author: "ပိုင်မင်းဆွေ"  
+author_latin: "Paing Minn Swe"  
+date: 2013-09-06  
+place: "Singapore"  
+original_language: "Burmese"  
+translation_language: "English"  
+status: "online"  
+---
+
 ### ကော်ပတ်ရုပ်ကြီး 
 ကော်ပတ်ရုပ်ကြီး မျက်လုံးမှာ ကော်ရည်တွေနဲ့  
 ကော်ပတ်ရုပ်ကြီး ကျောကုန်းဟာ ပေါက်နေပါပြီ  
@@ -30,12 +42,3 @@ The mannequin laughs no more.
     
   *Original Burmese poem and English translation by ပိုင်မင်းဆွေ (Paing Minn Swe), written in Singapore in 2013.*  
     
----  
-     
-title: The Mannequin  
-date: 2013-09-06  
-language: Burmese, English  
-status: published-online  
-collection: collection-01  
-  
----  
