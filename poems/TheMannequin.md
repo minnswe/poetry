@@ -1,4 +1,4 @@
----
+<!--
 title: "ကော်ပတ်ရုပ်ကြီး"  
 english_title: "The Mannequin"  
 author: "ပိုင်မင်းဆွေ"  
@@ -7,8 +7,10 @@ date: 2013-09-06
 place: "Singapore"  
 original_language: "Burmese"  
 translation_language: "English"  
-status: "online"  
----
+status: "online"    
+collections: []  
+tags: []  
+-->
 
 ### ကော်ပတ်ရုပ်ကြီး 
 ကော်ပတ်ရုပ်ကြီး မျက်လုံးမှာ ကော်ရည်တွေနဲ့  
