@@ -61,5 +61,8 @@ This time, I’ll draw it to last long.
 Standing against of all's look,  
 I stared at the brush.  
 My imagination is an endless universe!  
-  
+
+**Paing Minn Swe**  
+Myanmar 2019  
+<br>    
 Translated from Burmese by # Ma Mar  
