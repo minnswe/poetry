@@ -30,4 +30,4 @@ For permission inquiries, please contact the author.
 
 All rights not expressly granted above are reserved by the author.
 
-© 2026 ပိုင်မင်းဆွေ (Paing Minn Swe). All rights reserved.
+© ပိုင်မင်းဆွေ (Paing Minn Swe). All rights reserved.
