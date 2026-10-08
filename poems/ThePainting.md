@@ -3,7 +3,7 @@ title: "ပန်းချီ"
 english_title: "The Painting"  
 author: "ပိုင်မင်းဆွေ"  
 author_latin: "Paing Minn Swe"  
-date: 2019-08-23  
+date: 2019-08-10  
 place: "Monywa, Myanmar"  
 original_language: "Burmese"  
 translation_language: "English"  
