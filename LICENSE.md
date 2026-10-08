@@ -1,8 +1,6 @@
 # Copyright and Usage
 
-© 2026 ပိုင်မင်းဆွေ [Paing Minn Swe]. All rights reserved.
-
-The poems and other original literary works in this repository are the intellectual property of ပိုင်မင်းဆွေ [Paing Minn Swe].
+The poems and other original literary works in this repository are the intellectual property of **ပိုင်မင်းဆွေ (Paing Minn Swe)**.
 
 ### Personal Use
 
@@ -31,3 +29,5 @@ Any commercial or business use requires my prior written permission. This includ
 For permission inquiries, please contact the author.
 
 All rights not expressly granted above are reserved by the author.
+
+© 2026 ပိုင်မင်းဆွေ (Paing Minn Swe). All rights reserved.
