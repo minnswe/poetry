@@ -1,4 +1,4 @@
-## <span style="border-bottom: 2px solid #ccc; padding-bottom: 10px; display: inline-block; width: 100%;">ကော်ပတ်ရုပ်ကြီး</span>
+## <span style="text-decoration: underline; text-underline-offset: 12px;">ကော်ပတ်ရုပ်ကြီး</span>
   
 ကော်ပတ်ရုပ်ကြီး မျက်လုံးမှာ ကော်ရည်တွေနဲ့  
 ကော်ပတ်ရုပ်ကြီး ကျောကုန်းဟာ ပေါက်နေပါပြီ  
