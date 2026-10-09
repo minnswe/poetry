@@ -38,14 +38,14 @@ tags: []
 Kicking remembrance away,    
 a coy little laugh escapes.    
 The southern wind has come, the Phat Sut rains have come,   
-and the mango flowers have well and fully arrived.  
-The earthy scent, the cooing of doves, and the Mont Let Saung seller,    
-I scoop them up by hand, like crumbs from my pocket,  
-and scatter them across the silver screen.  
+and the mango flowers have truly come.  
+The earthy scent, the cooing of doves, and the Mont Let Saung seller,        
+all scooped up by hand, like crumbs from a pocket,    
+then scattered across the silver screen.    
 Sunlight streams over the shimmering waves of a mirage.  
 Hello, Ma Khin Thet Tin, you..    
 Are well, I hope,  
-still laughing, charmingly and lively as ever,    
+still laughing in that charming, lively way,    
 with your little hand cupped over your lips.  
 
 **Paing Minn Swe**  
