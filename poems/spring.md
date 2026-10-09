@@ -53,7 +53,7 @@ India, 2011.
 
 ---
 
-*Phat-Sut rain (ဖက်ဆွတ်မိုး)* — A seasonal rain associated with the transition from the cool season to the hot season in Myanmar.  
+* *Phat-Sut rain (ဖက်ဆွတ်မိုး)* — A seasonal rain associated with the transition from the cool season to the hot season in Myanmar.  
   
-*Mont Let Saung (မုန့်လက်ဆောင်း)* — A traditional Burmese cold dessert, commonly served with rice drops, coconut milk, and palm jaggery syrup, especially refreshing in hot weather.  
+* *Mont Let Saung (မုန့်လက်ဆောင်း)* — A traditional Burmese cold dessert, commonly served with rice drops, coconut milk, and palm jaggery syrup, especially refreshing in hot weather.  
 
