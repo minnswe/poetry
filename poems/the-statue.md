@@ -1,6 +1,6 @@
 <!--
 title: "ရုပ်တု"  
-english_title: "The Statute"  
+english_title: "The Statue"  
 author: "ပိုင်မင်းဆွေ"  
 author_latin: "Paing Minn Swe"  
 date: 2014-05-18  
@@ -25,7 +25,12 @@ tags: []
 
 ---
 
-### The Statute  
+### The Statue  
+
+After one last chisel stroke,  
+they left.   
+The statue's eyes  
+have been gazing toward the road.    
 
 **Paing Minn Swe**  
 Singapore, 2014. 
