@@ -50,7 +50,7 @@ tags: []
   
 I keep thinking of the actress in the movie.  
 The actress in the movie shows off her glowing thighs.  
-On the sloping trunk of a long tree, broken partway through,  
+On the sloping trunk broken off from a long tree,  
 the actress in the movie plays, going up and down.  
 I take great pleasure in seeing the actress in the movie  
 keeping her distance from a man,  
