@@ -41,4 +41,4 @@ Only glue comes out.
 The mannequin laughs no more.  
   
 **Paing Minn Swe**  
-Singapore 2013  
+Singapore, 2013.  
