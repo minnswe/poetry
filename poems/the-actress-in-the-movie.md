@@ -62,9 +62,9 @@ The actress in the movie is captured, just as scripted.
 I hear the actress’s pain.  
 The heat is unbearable, so I open a can of cold drink from the refrigerator and gulp it down.  
 I can no longer watch the movie.  
-When I close my eyes in exhaustion,  
-the actress in the movie is walking toward me, step by step,  
-out of the screen.  
+As I close my eyes in exhaustion,  
+the actress in the movie is walking toward me,  
+step by step, out of the screen.  
 The actress’s lips take flight  
 and strike my whole body.  
 That day, the actress in the movie was watching a movie,  
