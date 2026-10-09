@@ -75,5 +75,5 @@ In the days that follow, I forget the actress in the movie.
 Quite gently, really.  
 The movie I watched on Friday night.  
   
-**Paing Minn Swe**. 
+**Paing Minn Swe**  
 Singapore, 2014. 
