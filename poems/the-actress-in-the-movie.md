@@ -55,7 +55,7 @@ the actress in the movie plays, going up and down.
 I take great pleasure in seeing the actress in the movie  
 keeping her distance from a man,  
 refusing to let him hold her in his arms.  
-The bad guys are after the actress.  
+The bad guys start chasing the actress in the movie.    
 I suddenly jump in to stop them.  
 But in vain, the movie goes on.  
 The actress in the movie is captured, just as scripted.  
