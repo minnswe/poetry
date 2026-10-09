@@ -65,7 +65,7 @@ I can no longer watch the movie.
 As I close my eyes in exhaustion,  
 the actress in the movie is walking, step by step,  
 toward me, out of the screen.  
-The actress’s lips take flight  
+The lips of the actress in the movie take flight  
 and strike my whole body.  
 That day, the actress in the movie was watching a movie,  
 much like I had been watching a movie starring the actress in the movie.  
