@@ -63,8 +63,8 @@ I hear the actress’s pain.
 The heat is unbearable, so I open a can of cold drink from the fridge.  
 I can no longer watch the movie.  
 As I close my eyes in exhaustion,  
-the actress in the movie is walking toward me,  
-step by step, out of the screen.  
+the actress in the movie is walking, step by step,  
+toward me, out of the screen.  
 The actress’s lips take flight  
 and strike my whole body.  
 That day, the actress in the movie was watching a movie,  
