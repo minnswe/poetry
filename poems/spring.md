@@ -30,3 +30,24 @@ tags: []
 
 **ပိုင်မင်းဆွေ**  
 အိန္ဒိယ၊ ၂၀၁၁။  
+
+---
+
+### Spring  
+  
+Kicking remembrance away,    
+a coy little laugh escapes.    
+The southern wind has come, the Phat-Sut rains have come,   
+and the mango blossoms have arrived in full force.  
+The earthy scent, the cooing of doves, and the Mont Let Saung seller,    
+I scoop them up by hand, like crumbs from my pocket,  
+and scatter them across the silver screen.  
+Sunlight streams over the shimmering waves of a mirage.  
+Hello, Ma Khin Thet Tin, you..    
+Are well, I hope,  
+still laughing, charmingly and lively as ever,    
+with your little hand cupped over your lips.  
+
+**Paing Minn Swe**  
+India, 2011.  
+
