@@ -60,7 +60,7 @@ I suddenly jump in to stop them.
 But in vain, the movie goes on.  
 The actress in the movie is captured, just as scripted.  
 I hear the actress’s pain.  
-The heat is unbearable, so I open a can of cold drink from the refrigerator and gulp it down.  
+The heat is unbearable, so I open a can of cold drink from the fridge.  
 I can no longer watch the movie.  
 As I close my eyes in exhaustion,  
 the actress in the movie is walking toward me,  
