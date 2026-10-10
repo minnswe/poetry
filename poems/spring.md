@@ -37,7 +37,7 @@ tags: []
   
 Kicking remembrance away,    
 a coy little laugh escapes.    
-The southern wind has come, the Phat Sut rains have come,   
+The southern wind has come, the Phat-Sut rains have come,   
 and the mango flowers have truly come.  
 The earthy scent, the cooing of doves, and the Mont Let Saung seller,        
 all scooped up by hand, like crumbs from a pocket,    
@@ -55,5 +55,5 @@ India, 2011.
 
 * *Phat-Sut rain (ဖက်ဆွတ်မိုး)* — A seasonal rain associated with the transition from the cool season to the hot season in Myanmar.  
   
-* *Mont Let Saung (မုန့်လက်ဆောင်း)* — A traditional Burmese cold dessert, commonly served with rice drops, coconut milk, and palm jaggery syrup, especially refreshing in hot weather.  
+* *Mont Let Saung (မုန့်လက်ဆောင်း)* — A traditional Burmese cold dessert, commonly served with rice drops, palm jaggery syrup, and coconut milk, especially refreshing in hot weather.  
 
