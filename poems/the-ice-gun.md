@@ -39,7 +39,7 @@ tags: []
 Teaming up with the ice-pop sellers,  
 I swing and fire, shot after rattling shot,  
 into the heat waves.  
-Ice bullets scatter everywhere.
+Ice bullets scatter everywhere.  
 Sticks and packets, then  
 ice balls, ice blocks, shaved ice in yellow and green—  
 a colorful rain of icy coolness begins to fall.  
