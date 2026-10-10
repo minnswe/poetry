@@ -49,7 +49,7 @@ tags: []
 ### The Actress in the Movie  
   
 I keep thinking of the actress in the movie.  
-The actress in the movie shows off her glowing thighs.  
+The actress in the movie puts her glowing thighs on display.  
 On the sloping trunk of a tall tree broken halfway up,  
 the actress in the movie plays, going up and down.  
 I take great pleasure in seeing the actress in the movie  
