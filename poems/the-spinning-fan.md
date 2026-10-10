@@ -53,3 +53,55 @@ tags: []
  
 **ပိုင်မင်းဆွေ**  
 အိန္ဒိယ၊ ၂၀၁၀။
+
+---
+
+### The Spinning Fan  
+
+The spinning fan never neglected its duty.  
+It kept turning,  
+kept turning, day after day.  
+
+The spinning fan,   
+along with two computers, a woven mat,    
+three plastic-backed chairs,   
+an iron cabinet, a bed, and two people,   
+went round and round inside the room.  
+
+The spinning fan,  
+as best it could,  
+tried to give the room coolness and love  
+(it really did try).  
+
+Two geckos clung upside down to the ceiling—  
+the spinning fan saw them every day.  
+A guitar and a calendar hung on the wall—  
+the spinning fan saw them every day.  
+  
+It also saw the great frangipani tree  
+standing upright, thrusting through the chests of two people.  
+It saw the clouds of things they dared not express.  
+It saw their feelings, painfully locked away,  
+like creatures dwelling deep in burrows.  
+Dreaming of all these things, it kept turning.  
+
+Within the cycles of its own life,  
+drugging itself, seeing what it wished to see,  
+the spinning fan kept turning:  
+the sound of blows concealed beneath remembrance,  
+tears, the refusal to admit, sexual desire, morality, humour,  
+the system of the times, dinner, love, ego,  
+the Truth of the Origin of Suffering,  
+work, urban life, and money.  
+
+Not one of these things quite clear,  
+yet the focus in its consciousness never wavering,  
+day after day, amid the days,  
+it kept turning, steadily.
+
+Today is Thursday.  
+In the evening, the power goes out,  
+and the spinning fan comes to a stop.  
+
+**Paing Minn Swe**  
+India, 2010.
