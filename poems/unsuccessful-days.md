@@ -1,6 +1,6 @@
 <!--
 title: "မအောင်မြင်ခဲ့သောနေ့များ"  
-english_title: "The Unsuccessful Days"  
+english_title: "Unsuccessful Days"  
 author: "ပိုင်မင်းဆွေ"  
 author_latin: "Paing Minn Swe"  
 date: 2013-00-00  
@@ -28,7 +28,7 @@ tags: []
 
 ---
 
-### The Unsuccessful Days  
+### Unsuccessful Days  
 
 I drank   
 the beer a friend bought me.  
