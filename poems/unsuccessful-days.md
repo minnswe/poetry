@@ -35,7 +35,7 @@ the beer a friend bought me.
 He said everything would be all right    
 if I drank it.  
 I drank,  
-thirstily,  
+starvingly,  
 I drank.  
 
 **Paing Minn Swe**  
